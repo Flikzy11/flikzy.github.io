@@ -1,1 +1,1 @@
-Bored
+bored
